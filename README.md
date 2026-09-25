@@ -4,6 +4,8 @@
 <div align="center"> 
   
 [maka](https://github.com/goldenchestplate) me & sunny </div>
+<div align="center"> 
+i love my brother & sister ◝(ᵔᗜᵔ)◜ </div>
 <div align="center">
 POLTERGEIST SIBLINGS FOREVER!!! </div>
 <div align="center">
