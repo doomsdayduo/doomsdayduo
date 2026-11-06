@@ -3,7 +3,9 @@
 </p>
 <p align="center">
 $\color{#C54EAA}{\textsf{haiiii! my name is spoke, but feel free to call me cruci.}}$  <br>
+
 $\color{#A22277}{\textsf{i love when people sit with me & interact with me!}}% <br>
+
 $\color{#790E47}{\textsf{so please don't be nervous to reach out.. i'm very friendly}}% <br>
 
 <div align="center">
