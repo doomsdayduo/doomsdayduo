@@ -9,4 +9,4 @@
 
 [strawpage](https://minutetechs.straw.page/)  [atabook](https://doomsdayduo.atabook.org/)
 
-<img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="20%">
+<img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="5%">
