@@ -14,7 +14,7 @@ so please don't be nervous to reach out.. i'm very friendly <br>
    <details>
    <summary>my friends!!</summary>
     
-  [maybelle](https://github.com/Rabbitlurks) <img src="https://i.postimg.cc/LsbYGGBn/ecc6086388612c268d2198c8cfe834ddd9987433.gif" width="3%"> 11.22.23 </br>
+  [maybelle](https://github.com/Rabbitlurks) <img src="https://i.postimg.cc/LsbYGGBn/ecc6086388612c268d2198c8cfe834ddd9987433.gif" width="2%"> 11.22.23 </br>
 
       
    [maka](https://github.com/goldenchestplate) sunny [willow](https://github.com/fossilfinatiic) [planet](https://github.com/planetlordd)
