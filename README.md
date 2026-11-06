@@ -7,6 +7,6 @@
   so please don't be nervous to reach out.. i'm very friendly <br>
 
 
-[strawpage](https://minutetechs.straw.page/)  [atabook](https://doomsdayduo.atabook.org/)
+[strawpage](https://minutetechs.straw.page/) <img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="5%"> [atabook](https://doomsdayduo.atabook.org/)
 
-<img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="5%">
+
