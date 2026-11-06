@@ -1,16 +1,2 @@
-<div align="center">
-  
-![ac rawrzcc](https://pbs.twimg.com/media/HS_6rmbXoAE4lzM?format=jpg&name=large) </div>
-<div align="center"> 
-  
-[maka](https://github.com/goldenchestplate) me & sunny </div>
-<div align="center"> 
-i love my brother & sister ◝(ᵔᗜᵔ)◜ </div>
-<div align="center">
-POLTERGEIST SIBLINGS FOREVER!!! </div>
-<div align="center">
-  
-sign my [atabook](https://doomsdayduo.atabook.org/)! if you dare... </div>
-
-
+ <img align="center" src="https://files.catbox.moe/l4rxt8.png" alt="ac solarlanz" width="100%"/>
 
