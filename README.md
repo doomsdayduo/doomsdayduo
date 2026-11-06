@@ -1,4 +1,4 @@
- <img align="center" src="https://files.catbox.moe/l4rxt8.png" alt="ac solarlanz" width="100%"/>
+ <img align="center" src="https://files.catbox.moe/l4rxt8.png" alt="ac solarlanz" width="75%"/>
 
 
  <p align="center">
@@ -7,6 +7,6 @@
   so please don't be nervous to reach out.. i'm very friendly <br>
 
 
-[strawpage](https://minutetechs.straw.page/) <img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="3%"> [atabook](https://doomsdayduo.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://minutetechs.straw.page/) <img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="3%"> [atabook](https://doomsdayduo.atabook.org/)
 
 
