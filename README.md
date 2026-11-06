@@ -7,6 +7,6 @@ i love when people sit with me & interact with me! <br>
 so please don't be nervous to reach out.. i'm very friendly <br>
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://minutetechs.straw.page/) <img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="3%"> [atabook](https://doomsdayduo.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://minutetechs.straw.page/) <img src="https://i.postimg.cc/NMrPzc6w/8d9faea31ca4f605c874c681b5513baf2463c7af.gif" width="3%"> [atabook](https://doomsdayduo.atabook.org/)
 
 
